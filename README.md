@@ -8,8 +8,8 @@ Email Me 👉 ✉️ mayankkr00126@gamail.com For Collaboration/Project or Anyth
 👯 I’m looking to collaborate on: MayankPDFHUB
 🤔 I’m looking for help with: MAYANK PDF HUB
 💬 Ask me about: Collaboration, Tech Support
-📫 How to reach me:mayankkr00126@gmail.com
-😄 Pronouns:Mayank Kumar
+📫 How to reach me: mayankkr00126@gmail.com
+😄 Pronouns: Mayank Kumar
 ⚡ Fun fact: I Love coding and Editing .
 
 ## 🏆 GitHub Trophies
